@@ -1,6 +1,6 @@
  # Dmitriy Hurinovich
  
- ![] (https://drive.google.com/file/d/1gyFnFpGvt4HHNLI8M47n-Q3bHqvUaa60/view?usp=sharing)
+ ![](cv1111.jpg)
  
  Minsk, BY  
  *tel:* +375 (29) 110-18-11  
